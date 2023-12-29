@@ -8,7 +8,7 @@ Finalize is a powerful AI product integration platform, offering convenient serv
 
 
 
-Visit [our website](https://finalize.ai) for downloads of the editor and tools. 
+Visit [our website](https://finalize.ai) for downloads of the editor and tools. We are currently accepting waitlist applications on our website.
 
 
 
